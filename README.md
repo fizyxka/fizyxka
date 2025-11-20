@@ -24,5 +24,3 @@
 <p align="center"><sub><a href="https://t.me/fiz4kj">general tgc</a> | <a href="https://fiz.atabook.org/">atabook</a></sub></p>
 
 <p align="center">──────── · · · ────────</p>
-
-<p align="center"><sub>idk what to write -_-</sub></p>

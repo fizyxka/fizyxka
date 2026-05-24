@@ -21,5 +21,6 @@
 <p> </p>
 <p align="center"><b> socials </b></p>
 <p align="center"><sub>discord - fizqiqi</sub> </p>
-<p align="center"><sub><a href="https://t.me/fiz4kj">general tgc</a> | <a href="https://fiz.atabook.org/">atabook</a> | <a href="https://ru.pronouns.page/@fizyxka">pronouns.page</a> </sub></p><p> </p>
+<p align="center"><sub><a href="https://t.me/fiz4kj">general tgc</a> | <a href="https://fiz.atabook.org/">atabook</a> | <a href="https://ru.pronouns.page/@fizyxka">pronouns.page</a> </sub></p>
+<p align="center"><sub><a href="https://www.chess.com/member/fizyxka">chess.com</a> | <a href="https://lichess.org/@/fizyxka">lichess</a></p>
 <p align="center">⊱ ═════════ ༺༻ ═════════ ⊰</p>

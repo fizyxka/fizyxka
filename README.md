@@ -5,7 +5,7 @@
 <p align="center">─── ───</p>
 <p align="center">⇣</p>
 &nbsp;
-<p align="center">───── ·   ׂׂ་༘࿐ Call me <b>Fiz</b> ༉ ༅᷂ · ─────</p>
+<p align="center">───── ·   ׂׂ་༘࿐ Call me <b>Fiz</b> ༉ ༅ · ─────</p>
 <p align="center"><sub><b>NOTE</b>: my english is very bad</sub></p>
 <p align="center"><sub>ᴑ</sub></p><p align="center"><sub>^_^</sub></p>
 &nbsp;

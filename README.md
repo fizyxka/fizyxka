@@ -20,5 +20,5 @@
 <p align="center">﹌﹌﹌﹌﹌﹌</p>
 <p align="center">𝓼𝓸𝓬𝓲𝓪𝓵𝓼</p>
 <p align="center"><sub>𝐝𝐢𝐬𝐜𝐨𝐫𝐝 - fizqiqi</sub></p>
-<p align="center"><sub><a href="https://t.me/fiz4kj"> 𝐭𝐠𝐜</a> | <a href="https://fiz.atabook.org/">𝐚𝐭𝐚</a></sub></p>
+<p align="center"><sub><a href="https://t.me/fiz4kj">𝐭𝐠𝐜</a> | <a href=""https://fizyxka.carrd.co/#>𝐜𝐚𝐫𝐫𝐝.𝐜𝐨</a> | <a href="https://fiz.atabook.org/">𝐚𝐭𝐚</a></sub></p>
 <p align="center"><sub><a href="https://www.chess.com/member/fizyxka">𝐜𝐡𝐞𝐬𝐬.𝐜𝐨𝐦</a> | <a href="https://lichess.org/@/fizyxka">𝐥𝐢𝐜𝐡𝐞𝐬𝐬</a></sub></p>

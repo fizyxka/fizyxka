@@ -12,7 +12,7 @@
 <p><sub>⠀ ⠀ ⠀ ⠀ ⠀ · when i'm with my friends or <a href="https://github.com/alkhatiya">my sunshine</a>, i prefer DNI all unless them (it's comforting for me)</sub></p>
 <p><sub>⠀  ⠀ ⠀⠀ ⠀ · if u interfere and be annoying, i'll most likely ignore or hide u (yea, for my comfort)</sub></p>
 <p><sub> ⠀ ⠀⠀ ⠀ ⠀ · when i'm alone, i don't mind c+h and int, don't shy about it first</sub></p>
-<p><sub>⠀  ⠀ ⠀⠀ ⠀ · i often afk so use w2i but i may won't reply and miss ur message</sub></p>
+<p><sub>⠀  ⠀ ⠀⠀ ⠀ · i often offtab/afk so use w2i but i may won't reply and miss ur message</sub></p>
 <p><sub>⠀ ⠀ ⠀ ⠀ ⠀ · i can make improperly and cruel jokes</sub></p>
 <p><sub>⠀ ⠀ ⠀ ⠀ ⠀ · i use pastes because i find it funny</sub></p>
 <p><sub>⠀ ⠀ ⠀ ⠀ ⠀ · don't looking for friends =.=</sub></p>

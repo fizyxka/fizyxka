@@ -2,20 +2,13 @@
 <p align="center">☦</p>
 <p align="center"><sub>𝓽𝓱𝓲𝓼 𝓰𝓲𝓽𝓱𝓾𝓫 𝓲𝓼 𝓼𝓸𝓵𝓮𝓵𝔂 𝓯𝓸𝓻 𝓹𝓸𝓷𝔂 𝓽𝓸𝔀𝓷</sub></p>
 <p>⠀ ⠀ ⠀ ⠀ ⠀ ; ·˚ ༘ *𓂃 ⊹ ˖  ִֶָ་༘࿐ ˊ-</p>
-<p>⠀ ⠀ ༊༄゛𝒄𝒂𝒍𝒍 𝒎𝒆 𝑭𝒊𝒛 . ༉‧ </p>
-<p><sub>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ in pony town u can find me mostly on Safe Russian #1 (i usually sitting on countryhumans's area), 18+ Russian and Safe Server, alone or with someone ^_^</sub></p>
-<p><sub>⠀ ⠀ ⠀ i may pissing around and be very stupid, don't judge too severely)</sub></p>
+<p><sub>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀.𖥔 ݁ ˖ 𝐢𝐧 𝐩𝐨𝐧𝐲 𝐭𝐨𝐰𝐧 𝐲𝐨𝐮 𝐜𝐚𝐧 𝐟𝐢𝐧𝐝 𝐦𝐞 𝐦𝐨𝐬𝐭𝐥𝐲 𝐨𝐧 𝐬𝐚𝐟𝐞 𝐫𝐮𝐬𝐬𝐢𝐚𝐧 #𝟏, 𝟏𝟖+ 𝐫𝐮𝐬𝐬𝐢𝐚𝐧 𝐚𝐧𝐝 𝐬𝐚𝐟𝐞 𝐬𝐞𝐫𝐯𝐞𝐫, 𝐚𝐥𝐨𝐧𝐞 𝐨𝐫 𝐰𝐢𝐭𝐡 𝐬𝐨𝐦𝐞𝐨𝐧𝐞 ༉‧₊˚.</sub></p>
+<p> </p>
+<p>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀𝐨𝐟𝐭𝐞𝐧 𝐨𝐟𝐟𝐭𝐚𝐛/𝐚𝐟𝐤 𝐬𝐨 𝐰𝟐𝐢 𝐛𝐮𝐭 𝐦𝐚𝐲 𝐰𝐨𝐧'𝐭 𝐫𝐞𝐩𝐥𝐲</p>
+<p>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀𝐜+𝐡 & 𝐢𝐧𝐭 𝐟𝐫𝐞𝐞𝐥𝐲 .ᐟ  𝐛𝐮𝐭 𝐨𝐧𝐥𝐲 𝐢𝐟 𝐢'𝐦 𝐚𝐥𝐨𝐧𝐞</p>
+<p>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀𝐜𝐝⠀ 𝐫𝐩𝐝𝐧𝐢⠀ 𝐝𝐨𝐧'𝐭 𝐥𝐨𝐨𝐤𝐢𝐧𝐠 𝐟𝐨𝐫 𝐟𝐫𝐢𝐞𝐧𝐝𝐬</p>
 <p>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ‚‚•°. * ̣̮ ̥꒱࿐ ˊˎ- ˚.ೃ࿔*:･</p>
-<p> ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀  . ˚◞` *ೃ༄ ✁____ ________ _</p>
-<p> ⠀ 彡 𝓑𝓮𝓯𝓸𝓻𝓮 𝓯𝓸𝓻 𝓲𝓷𝓽 :</p>
-<p><sub>⠀ ⠀  ⠀ ⠀⠀ · CD - cover discomfort (because i'm indulging my vanity)</p>
-<p><sub>⠀ ⠀ ⠀ ⠀ ⠀ · when i'm with my friends or <a href="https://github.com/alkhatiya">my sunshine</a>, i prefer DNI all unless them (it's comforting for me)</sub></p>
-<p><sub>⠀  ⠀ ⠀⠀ ⠀ · if u interfere and be annoying, i'll most likely ignore or hide u (yea, for my comfort)</sub></p>
-<p><sub> ⠀ ⠀⠀ ⠀ ⠀ · when i'm alone, i don't mind c+h and int, don't shy about it first</sub></p>
-<p><sub>⠀  ⠀ ⠀⠀ ⠀ · i often offtab/afk so use w2i but i may won't reply and miss ur message</sub></p>
-<p><sub>⠀ ⠀ ⠀ ⠀ ⠀ · i can make improperly and cruel jokes</sub></p>
-<p><sub>⠀ ⠀ ⠀ ⠀ ⠀ · i use pastes because i find it funny</sub></p>
-<p><sub>⠀ ⠀ ⠀ ⠀ ⠀ · don't looking for friends =.=</sub></p>
+<p> ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀  . ˚◞` *ೃ༄ </p>
 <p> </p>
 <p align="center">﹌﹌﹌﹌﹌﹌</p>
 <p align="center">𝓼𝓸𝓬𝓲𝓪𝓵𝓼</p>

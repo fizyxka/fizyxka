@@ -1,16 +1,10 @@
-![](https://komarev.com/ghpvc/?username=fizyxka&style=plastic&color=eeeeee&label=/-ᡕᠵデᡁ᠊╾━)
-<p align="center">☦</p>
-<p align="center"><sub>𝓽𝓱𝓲𝓼 𝓰𝓲𝓽𝓱𝓾𝓫 𝓲𝓼 𝓼𝓸𝓵𝓮𝓵𝔂 𝓯𝓸𝓻 𝓹𝓸𝓷𝔂 𝓽𝓸𝔀𝓷</sub></p>
-<p>⠀ ⠀ ⠀ ⠀ ⠀ ; ·˚ ༘ *𓂃 ⊹ ˖  ִֶָ་༘࿐ ˊ-</p>
-<p><sub>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀.𖥔 ݁ ˖ 𝐢𝐧 𝐩𝐨𝐧𝐲 𝐭𝐨𝐰𝐧 𝐲𝐨𝐮 𝐜𝐚𝐧 𝐟𝐢𝐧𝐝 𝐦𝐞 𝐦𝐨𝐬𝐭𝐥𝐲 𝐨𝐧 𝐬𝐚𝐟𝐞 𝐫𝐮𝐬𝐬𝐢𝐚𝐧 #𝟏, 𝟏𝟖+ 𝐫𝐮𝐬𝐬𝐢𝐚𝐧 𝐚𝐧𝐝 𝐬𝐚𝐟𝐞 𝐬𝐞𝐫𝐯𝐞𝐫, 𝐚𝐥𝐨𝐧𝐞 𝐨𝐫 𝐰𝐢𝐭𝐡 𝐬𝐨𝐦𝐞𝐨𝐧𝐞 ༉‧₊˚.</sub></p>
-<p> </p>
-<p><sub>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀𝐨𝐟𝐭𝐞𝐧 𝐨𝐟𝐟𝐭𝐚𝐛/𝐚𝐟𝐤 𝐬𝐨 𝐰𝟐𝐢 𝐛𝐮𝐭 𝐦𝐚𝐲 𝐰𝐨𝐧'𝐭 𝐫𝐞𝐩𝐥𝐲</sub></p>
-<p><sub>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀𝐜+𝐡 & 𝐢𝐧𝐭 𝐟𝐫𝐞𝐞𝐥𝐲 .ᐟ  𝐛𝐮𝐭 𝐨𝐧𝐥𝐲 𝐢𝐟 𝐢'𝐦 𝐚𝐥𝐨𝐧𝐞</sub></p>
-<p><sub>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀𝐜𝐝⠀ 𝐫𝐩𝐝𝐧𝐢⠀ 𝐝𝐨𝐧'𝐭 𝐥𝐨𝐨𝐤𝐢𝐧𝐠 𝐟𝐨𝐫 𝐟𝐫𝐢𝐞𝐧𝐝𝐬</sub></p>
-<p>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ‚‚•°. * ̣̮ ̥꒱࿐ ˊˎ- ˚.ೃ࿔*:･</p>
-<p> </p>
-<p align="center">﹌﹌﹌﹌﹌﹌</p>
-<p align="center">𝓼𝓸𝓬𝓲𝓪𝓵𝓼</p>
-<p align="center"><sub>𝐝𝐢𝐬𝐜𝐨𝐫𝐝 - fizqiqi</sub></p>
-<p align="center"><sub><a href="https://t.me/fiz4kj">𝐭𝐠𝐜</a> | <a href="https://fizyxka.carrd.co/#">𝐜𝐚𝐫𝐫𝐝.𝐜𝐨</a> | <a href="https://fiz.atabook.org/">𝐚𝐭𝐚</a></sub></p>
-<p align="center"><sub><a href="https://www.chess.com/member/fizyxka">𝐜𝐡𝐞𝐬𝐬.𝐜𝐨𝐦</a> | <a href="https://lichess.org/@/fizyxka">𝐥𝐢𝐜𝐡𝐞𝐬𝐬</a></sub></p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=fizyxka&style=plastic&color=eeeeee&label=shooters))"></p>
+<p align="center">pro/com/dark ships friendly</p>
+<p align="center">often offtab/afk so use w2i but i may won't reply. plz don't talk and int to me if i'm already with someone. don't looking for friends srry (x_x)⌒☆</p>
+<p align="center"><img src="https://github.com/user-attachments/assets/50b915a5-b1c3-4e56-89bd-512b06646eb0"/></p>
+<p align="center"><b>socials</b></p>
+<p align="center">discord - fizqiqi</p>
+<p align="center"><a href="https://t.me/fiz4kj">telegram channel, where i publish my arts</a></p>
+<p align="center"><a href="https://www.chess.com/member/fizyxka">chess.com</a> | <a href="https://lichess.org/@/fizyxka">lichess</a></p>
+
+<p align="center"><img width="99" height="56" gif src="https://github.com/user-attachments/assets/8e4373e6-67d1-46b9-8cb8-2a3738db2bff"/><img width="99" height="56" img src="https://github.com/user-attachments/assets/c5d47971-d901-4ef9-a653-a30947b12d43"/></p>
